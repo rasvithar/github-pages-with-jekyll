@@ -1,5 +1,5 @@
 # Welcome to my blog
-My name is Rasvitha Rajendra and here is some info about me...
+My name is Rasvitha Rajendra and here is some info about me
 I am a junior that attends East Brunswick Highschool. My interests include playing the saxophone, doing classical indian dance, and doing makeup. I want to go into the field of Psychology when I grow up and my dream is to become a criminal profiler. These are just a few things about me, but you'll get to know more in my blog. 
 
 Brag Sheet
